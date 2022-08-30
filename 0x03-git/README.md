@@ -1,1 +1,3 @@
-It is okay, the checker will work. Dont give up.
+The checker finally worked halleluyah
+God is good
+GOD is powerful
